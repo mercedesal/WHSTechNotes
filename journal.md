@@ -2,5 +2,7 @@
 today , I created my first GitHub account and respitory. I'm excited to start using GitHub for my projects !
 # September 2, 2025
 my thoughts on the new cell phone use poloicy is that it's useless. I don't have any problem with adjusting with it but others do, there are lots of instances where we might need ourt phones. An example would be like what if there is and emergency and the school phone is down or they cant reach them in time, having our phone and just being able to contact our parents would be faster and more efficient. There are lots of other instances where we might need our phones aswell and there are a lot of people teachers and students that agree with this. The bill even affects teachers because some of their classes were centered on using cellular devices to connect to things like apps. The evidencve i provided helps prove how the phone ban does more harm than good. 
-# september8, 2025
+# september 8, 2025
 a career i would like to do is become a computer scientiist, i chose to do this course to become one. Since i was in middle school ive been trying to figure out what i want to do with my future but ive chose computer science. Although,i would like to write stories and type as a career too. 
+# september 22, 2025
+I think that working in a virtual store can be a good idea as long as youre getting money. earning 61 dollars for just working in an online store without having to get up for a real one can have lots of benefits like if you can't make it to the actual store. 
