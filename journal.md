@@ -6,3 +6,6 @@ my thoughts on the new cell phone use poloicy is that it's useless. I don't have
 a career i would like to do is become a computer scientiist, i chose to do this course to become one. Since i was in middle school ive been trying to figure out what i want to do with my future but ive chose computer science. Although,i would like to write stories and type as a career too. 
 # september 22, 2025
 I think that working in a virtual store can be a good idea as long as youre getting money. earning 61 dollars for just working in an online store without having to get up for a real one can have lots of benefits like if you can't make it to the actual store. 
+# september 15, 2025
+a good use of AI could be to make it to where students can pitch different ideas to an AI program that they might not have the materials to do and have it create it. This idea meets the requirements becasue it shows an idea that student can use oout of the benefit of AI. The idea could help people by getting to see their ideas live on a screen instead of being left thinking about what it could be. 
+
