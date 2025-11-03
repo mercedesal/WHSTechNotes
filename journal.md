@@ -8,4 +8,5 @@ a career i would like to do is become a computer scientiist, i chose to do this 
 I think that working in a virtual store can be a good idea as long as youre getting money. earning 61 dollars for just working in an online store without having to get up for a real one can have lots of benefits like if you can't make it to the actual store. 
 # september 15, 2025
 a good use of AI could be to make it to where students can pitch different ideas to an AI program that they might not have the materials to do and have it create it. This idea meets the requirements becasue it shows an idea that student can use oout of the benefit of AI. The idea could help people by getting to see their ideas live on a screen instead of being left thinking about what it could be. 
-
+# october 27, 2025
+some technology that could help the people would be a tracker for after the storm. The tracker could help them discover people who could have gotten lost in the storm.This tool coould help prevent the amount of people missing and save the ives of thousands if used correctly.If i could make a new pience of technology it would be a weather preventer to stop certain weather or prevent it as much as possible.I feel that would help with current situations.
