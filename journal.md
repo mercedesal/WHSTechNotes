@@ -20,3 +20,6 @@ there are lot's of ways drones take place in multiple jobs.  A job that requires
 The self-driving car might've failed to see the school bus because the stop sign might be a smaller object and the car might not have seen it. Or the program for the car was messed up and isn't able to understand the concept of buses reaching out their stop sign. Ai can never fully be trusted when on the road or almost anywhere because there's always room for errors in somethig man made. If i was a programmer for this company I would make the software become more aware of things on the road, the software would have special built in censors to sense the stop sign. A fix to this issue could be to go into the software and make sure it is aware of the stop signs then run a test of some cars before selling them.
 # december 15, 2025
 my plans for winter break are to go to California and visit my mom's side of the family and spend a week over there. The second week me and my family are going to come back home becuase my mom has work and we'll get ready for school again.
+# february 10, 2026
+1. no because i dont understand it at all.,2. no, because it was lamer than usual,and i dont like bad bunny so the halftime show wasnt good.
+   
