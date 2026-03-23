@@ -22,4 +22,5 @@ The self-driving car might've failed to see the school bus because the stop sign
 my plans for winter break are to go to California and visit my mom's side of the family and spend a week over there. The second week me and my family are going to come back home becuase my mom has work and we'll get ready for school again.
 # february 10, 2026
 1. no because i dont understand it at all.,2. no, because it was lamer than usual,and i dont like bad bunny so the halftime show wasnt good.
-   
+# march 23, 2026   
+i chose my bracket based off the performance of teams this season & past games of the team they're facing aswell as who i think is the overall top teams right now. I wasn't super suprised off the first weekend, i just wanna see uconn. Using data can improve predictions by making them more accurate.Computer data has lot's of information in it which is more than what the average person knows so they could make a better prediction by using everything and breaking it down. Working for espn .
